@@ -1,2 +1,2 @@
-# mayachakra.github.io
+# mayachakraWeb.github.io
 Maya Chakravarty's Profile Page
