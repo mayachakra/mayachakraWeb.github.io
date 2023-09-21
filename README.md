@@ -1,2 +1,2 @@
-# mayachakraWeb.github.io
+# 1172Dupe.github.io
 Maya Chakravarty's Profile Page
